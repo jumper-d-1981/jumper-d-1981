@@ -1,0 +1,3 @@
+- Well, I am Jumper...like electronic tinkering, work in IT and IOT.  Learning fast, but so much to consume, never able to catch up.  
+- Pardon my questions, I will have many.
+- Thanks for listening.
